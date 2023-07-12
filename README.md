@@ -12,7 +12,7 @@
   
 - 🌱 I’m currently learning python, it's pathetic as it sounds  
 - 💢 i hate you, and everyone you love, it makes me wanna puke  
-- 🔥 i hate femmies, faggies, and jewies  
+- 🔥 i hate femmies, faggies, and jewies (that being said, i don't condone/endorse hurting innocent people, no matter your view) 
 - 📺 i watch a ton of anime, because i hate people, and there propaganda, and there cruelty of the world  
   
 
