@@ -6,3 +6,6 @@
 oh wait, you expect me to dox myself? 
 
 well i do, leme say some:
+- i hate you, and everyone you love, it makes me wanna puke
+- i hate femmies, faggies, and jewies
+- i am learning python
