@@ -11,7 +11,7 @@
 <div align="center">oh wait, you expect me to dox myself? oh i will:</div>  
   
 - 🌱 I’m currently learning python, it's pathetic as it sounds  
-- 💢 I hate everyone, especially those femmies, faggies, and **glowies**, and it makes me want to puke. (I don't condone nor endorse hurting people; if you hate them, share your opinion professionally; just avoid, block, or disown them; there is enough cruelty in this world.)
+- 💢 I hate everyone, especially those femmies, faggies, and **glowies**, and it makes me want to puke. (Though i don't condone nor endorse hurting people, share your opinion in a friendly manner, and just avoid, block, or disown them; there is enough cruelty in this world.)
 - 📺 i luv indie games and anime, and local llms when they become a real thing 💞
 
 ***<div align="center">that being said...</div>***
