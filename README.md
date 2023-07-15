@@ -11,8 +11,7 @@
 <div align="center">oh wait, you expect me to dox myself? oh i will:</div>  
   
 - 🌱 I’m currently learning python, it's pathetic as it sounds  
-- 💢 i hate you, and everyone you love, it makes me wanna puke  
-- 🔥 i hate femmies, faggies, and jewies (that being said, i don't condone/endorse hurting innocent people, no matter your view) 
+- 💢 i hate you, and everyone you love, especially i hate femmies, faggies, and jewies (the fish ofc), it makes me wanna puke (disclaimer: that being said, i don't condone/endorse hurting innocent people, if you hate them, just block or disown them)
 - 📺 i watch a ton of anime, because i hate people, and there propaganda, and there cruelty of the world  
   
 
