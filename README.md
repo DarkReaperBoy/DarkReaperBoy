@@ -32,3 +32,5 @@
 </div>  
 
 <br />
+
+(*heh, i made my fav edgy bio, now, i might start coding...*)
