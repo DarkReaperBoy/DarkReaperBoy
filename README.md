@@ -16,10 +16,7 @@
 
 ***<div align="center">that being said...</div>***
 
-*you are welcome to dm me if you say where you came from on [telegram](https://t.me/darkreaperboy), discord (with same id), and i don't read my email since it's filled with junk*
-  
-
-*that being said, separate art from the person, otherwise i would call you "masochist"*
+*you are welcome to dm me on [telegram](https://t.me/darkreaperboy), discord (with same id), and i don't read my email since it's filled with junk*
 
 ## Github Stats  
 
