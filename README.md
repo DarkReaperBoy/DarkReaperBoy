@@ -12,15 +12,14 @@
   
 - 🌱 I’m currently learning python, it's pathetic as it sounds  
 - 💢 I hate you and everyone you love, especially femmies, faggies, and jewies (the fish, of course), and it makes me want to puke. (Disclaimer: that being said, I don't condone or endorse hurting innocent people; if you hate them, share your opinion with a professional; just avoid, block, or disown them; there is enough cruelty in this world.)
-- 📺 i watch a ton of anime, because i hate people, and there propaganda, and there cruelty in the world  
-  
+- 📺 i luv indie games and anime, and local llms when they become a real thing 💞
 
 ***<div align="center">that being said...</div>***
 
 *you are welcome to dm me if you say where you came from on [telegram](https://t.me/darkreaperboy), discord (with same id), and i don't read my email since it's filled with junk*
   
 
-
+*that being said, separate art from the person, otherwise i would call you "masochist"*
 
 ## Github Stats  
 
